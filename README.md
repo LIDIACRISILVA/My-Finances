@@ -1,0 +1,1 @@
+Planilhas inteligentes e recursos de Inteligência Artificial para monitorar gastos, categorizar despesas e estabelecer metas de economia. As planilhas oferecem uma visão prática e personalizada, ajudando cada pessoa a tomar decisões financeiras mais informadas e eficientes.
